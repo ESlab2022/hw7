@@ -1,1 +1,6 @@
 # hw7
+
+![315525639_1104098723636833_5479940290626967140_n](https://user-images.githubusercontent.com/8317457/202751664-e9a84f6a-c034-4200-ac29-20985931d106.png)
+
+![Figure_1](https://user-images.githubusercontent.com/8317457/202751588-34a48646-2110-4996-85c4-5343945e5cf8.png)
+
